@@ -1,1 +1,1 @@
-# Copy-of-Rocks-And-Mine
+# Copy-of-Rocks-vs-Mine
